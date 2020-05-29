@@ -1,0 +1,2 @@
+# eksamen2semester
+eksamenemmaogsisse
